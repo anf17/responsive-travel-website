@@ -10,5 +10,3 @@
 
 Join the channel to see more videos like this. 
 (https://www.instagram.com/aldikanfauzan)
-
-![travel-website](/preview.png)
